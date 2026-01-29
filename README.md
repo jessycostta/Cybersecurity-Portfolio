@@ -44,7 +44,7 @@ Currently focused on gaining hands-on experience through real-world projects, co
 
 📫 **Connect with me:**  
 - 🌐 [LinkedIn](https://linkedin.com/in/jessicacostta)  
-- ✉️ neljessi@hotmail.com
+- ✉️ jessy.costta@hotmail.com
 
 > “Cybersecurity isn’t just about technology, it’s about protecting people, data, and trust.”  
 
